@@ -1,1 +1,2 @@
 wlacz bonda 
+czy usunac
