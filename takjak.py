@@ -1,1 +1,0 @@
-Idziesz po pizze
