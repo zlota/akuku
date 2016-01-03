@@ -1,0 +1,1 @@
+wlacz bonda 
