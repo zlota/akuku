@@ -1,1 +1,2 @@
 wlacz bonda 
+palimy cos 
